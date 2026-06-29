@@ -1,4 +1,4 @@
-# CrcrossWall克洛斯机场官网地址（2026年月日更新）
+# CrcrossWall克洛斯机场官方地址（2026年06月29日更新）
 官网地址：[www.crosswall.org](https://www.crosswall.org/#/register?code=fpQ5Bw17)<br>
 ## 邀请码
 ## 简介
