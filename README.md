@@ -1,6 +1,9 @@
 # CrossWall克洛斯机场官方地址（2026年06月29日更新）
 CrossWall克洛斯机场官网地址</br>
-官方地址：[www.crosswall.org](https://www.crosswall.org/#/register?code=fpQ5Bw17)<br>
+最新地址01：[www.cross666.top](https://www.cross666.top/#/register?code=fpQ5Bw17)<br>
+最新地址02：[www.crosswall.org](https://www.crosswall.org/#/register?code=fpQ5Bw17)<br>
+官方地址：[keluosi.top](https://keluosi.top/#/register?code=fpQ5Bw17)<br>
+
 ## 邀请码
 ```BASH
 fpQ5Bw17
