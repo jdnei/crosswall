@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# CrossWall VPN Official Website (Updated November 13, 2026)
+# CrossWall VPN Official Website (Updated November 14, 2026)
 
 CrossWall VPN Official Website<br>
 Latest Address 01: [www.cross666.top](https://to.iix.im/cro03)<br>
